@@ -1,4 +1,4 @@
-
+natural disaster survival smart Script is the best natural disaster survival Script, featuring speed and aimbot. Safe and powerful for all your needs.
 
 
 
